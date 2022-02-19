@@ -1,4 +1,4 @@
-18 y/o enthusiast
-still alive
-tg: @deemfool
+18 y/o enthusiast /
+still alive /
+tg: @deemfool /
 
